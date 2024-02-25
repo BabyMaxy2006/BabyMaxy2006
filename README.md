@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @BabyMaxy2006
+- 👋 Hi, I’m @BabyMaxy2006 (Maxwell Davie Dales)
+- I am 18, yes the username is confusing, I lost my twin brother in 2006.
 - 👀 I’m interested in Minecraft, ABDL, Regression & Diapers
 - 🌱 I’m currently learning MCreator to make Mod Add-Ons
 - 💞️ I’m looking to collaborate on not sure contact me we can talk.
